@@ -10,3 +10,5 @@ En cuanto a mis hobbies:
 - Me gustan mucho las peliculas con contexto medieval, muy fan de Game of Thrones
 - No estoy activamente buscando trabajo, pero estoy abierto a la idea
 - Hice un cursito de reparacion de PC hace unos años, pero nunca lo puse a practica
+
+![2021-04-20 22_00_12 218-0300](https://github.com/pdepviernestm/2024-presentacion-MatePirchi/assets/159724605/615c9119-3cfc-46a4-982e-abec9558ac7c)
