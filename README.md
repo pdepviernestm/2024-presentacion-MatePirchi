@@ -9,3 +9,4 @@ En cuanto a mis hobbies:
 - Suelo salir a andar bicicleta, a veces incluso con mi perro (el corre al lado mio, no es tan complicado como suena)
 - Me gustan mucho las peliculas con contexto medieval, muy fan de Game of Thrones
 - No estoy activamente buscando trabajo, pero estoy abierto a la idea
+- Hice un cursito de reparacion de PC hace unos años, pero nunca lo puse a practica
